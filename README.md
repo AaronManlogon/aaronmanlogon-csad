@@ -1,1 +1,0 @@
-# aaronmanlogon.github.io
